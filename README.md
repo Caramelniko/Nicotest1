@@ -6,5 +6,5 @@ nicholas was here
 
 hi it's sunny at yew tee
 
-red pill or blue pill? red
+red pill or blue pill? red and yellow is orange
 hello
