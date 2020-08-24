@@ -5,3 +5,5 @@ Nico entering Github rabbithole
 nicholas was here
 
 hi it's sunny at yew tee
+
+red pill or blue pill?
